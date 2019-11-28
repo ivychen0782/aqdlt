@@ -3,10 +3,10 @@
 
 ---
 
-# 爱情岛论坛最新网址 (2019.11.22 UPDATED)
-## 【地址1】：[http://www.aqdlt007.com](http://www.aqdlt007.com:8888?f=github)
-## 【地址2】：[http://www.aqdlt008.com](http://www.aqdlt008.com:8888?f=github)
-## 【地址3】：[http://www.aqdlt009.com](http://www.aqdlt009.com:8888?f=github)
+# 爱情岛论坛最新网址 (2019.11.29 UPDATED)
+## 【地址1】：[http://www.aqdlt444.com](http://www.aqdlt444.com:8888?f=github)
+## 【地址2】：[http://www.aqdlt555.com](http://www.aqdlt555.com:8888?f=github)
+## 【地址3】：[http://www.aqdlt666.com](http://www.aqdlt666.com:8888?f=github)
 
 <br>
 
