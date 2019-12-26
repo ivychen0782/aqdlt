@@ -3,15 +3,15 @@
 
 ---
 
-# 爱情岛论坛最新网址 (2019.12.20 UPDATED)
-## 【地址1】：[https://www.aqdlt4455.com](https://www.aqdlt4455.com?f=github)
-## 【地址2】：[https://www.aqdlt5566.com](https://www.aqdlt5566.com?f=github)
-## 【地址3】：[https://www.aqdlt6677.com](https://www.aqdlt6677.com?f=github)
+# 爱情岛论坛最新网址 (2019.12.27 UPDATED)
+## 【地址1】：[https://www.aqdav2.com](https://www.aqdav2.com?f=github)
+## 【地址2】：[https://www.aqdav3.com](https://www.aqdav3.com?f=github)
+## 【地址3】：[https://www.aqdav4.com](https://www.aqdav4.com?f=github)
 
 <br>
 
 ## 爱情岛论坛永久地址客户端下载er
-### 【Android客户端】![Android客户端](https://ww1.sinaimg.cn/large/007drMcOgy1fzljgv278jj300f00ia9t.jpg) [点击下载](https://cdn.k1815.com/app/aqdlt_android_0828.apk)
+### 【Android客户端】![Android客户端](https://ww1.sinaimg.cn/large/007drMcOgy1fzljgv278jj300f00ia9t.jpg) [点击下载](https://cdn.qunale888.com/app/aqdlt_android_0828.apk)
 
 <br>
 
