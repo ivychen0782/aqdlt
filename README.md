@@ -3,10 +3,10 @@
 
 ---
 
-# 爱情岛论坛最新网址 (2019.12.27 UPDATED)
-## 【地址1】：[https://www.aqdav2.com](https://www.aqdav2.com?f=github)
-## 【地址2】：[https://www.aqdav3.com](https://www.aqdav3.com?f=github)
-## 【地址3】：[https://www.aqdav4.com](https://www.aqdav4.com?f=github)
+# 爱情岛论坛最新网址 (2020.01.03 UPDATED)
+## 【地址1】：[https://www.aqdav11.com](https://www.aqdav11.com?f=github)
+## 【地址2】：[https://www.aqdav22.com](https://www.aqdav22.com?f=github)
+## 【地址3】：[https://www.aqdav33.com](https://www.aqdav33.com?f=github)
 
 <br>
 
