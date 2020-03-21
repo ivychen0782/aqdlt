@@ -3,14 +3,14 @@
 
 ---
 
-# 爱情岛论坛最新网址 (2020.03.06 UPDATED)
-## 【地址1】：[https://www.aqdav53.com](https://www.aqdav53.com?f=github)
-## 【地址2】：[https://www.aqdav54.com](https://www.aqdav54.com?f=github)
-## 【地址3】：[https://www.aqdav56.com](https://www.aqdav56.com?f=github)
+# 爱情岛论坛最新网址 (2020.03.21 UPDATED)
+## 【地址1】：[https://www.aqdav60.com](https://www.aqdav60.com?f=github)
+## 【地址2】：[https://www.aqdav61.com](https://www.aqdav61.com?f=github)
+## 【地址3】：[https://www.aqdav62.com](https://www.aqdav62.com?f=github)
 
 <br>
 
-## 爱情岛论坛永久地址客户端下载er
+## 爱情岛论坛永久地址客户端下载
 ### 【Android客户端】![Android客户端](https://ww1.sinaimg.cn/large/007drMcOgy1fzljgv278jj300f00ia9t.jpg) [点击下载](https://cdn.qunale888.com/app/aqdlt_android_0828.apk)
 
 <br>
