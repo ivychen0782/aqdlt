@@ -4,9 +4,9 @@
 ---
 
 # 爱情岛论坛最新网址 (2020.04.24 UPDATED)
-## 【地址1】：[https://www.aqdav93.com](https://www.aqdav95.com?f=github)
+## 【地址1】：[https://www.aqdav93.com](https://www.aqdav93.com?f=github)
 ## 【地址2】：[https://www.aqdav94.com](https://www.aqdav94.com?f=github)
-## 【地址3】：[https://www.aqdav95.com](https://www.aqdav93.com?f=github)
+## 【地址3】：[https://www.aqdav95.com](https://www.aqdav95.com?f=github)
 
 <br>
 
