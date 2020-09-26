@@ -4,16 +4,16 @@
 ---
 
 ## 爱情岛论坛最新网址 (2020.09.19 UPDATED)
-### 【地址1】：[https://www.aqd063.com](https://www.aqd063.com?f=github)
-### 【地址2】：[https://www.aqdtv161.com](https://www.aqdtv161.com?f=github)
-### 【地址3】：[https://www.aqdtv169.com](https://www.aqdtv169.com?f=github)
-### 【地址4】：[https://www.aqdtv123.com](https://www.aqdtv123.com?f=github)
-### 【地址5】：[https://www.aqd019.com](https://www.aqd019.com?f=github)
-### 【地址6】：[https://www.aqdtv131.com](https://www.aqdtv131.com?f=github)
-### 【地址7】：[https://www.aqd095.com](https://www.aqd095.com?f=github)
-### 【地址8】：[https://www.aqd012.com](https://www.aqd012.com?f=github)
-### 【地址9】：[https://www.aqdtv191.com](https://www.aqdtv191.com?f=github)
-### 【地址10】：[https://www.aqdtv163.com](https://www.aqdtv163.com?f=github)
+### 【地址1】：[https://www.aqdtv124.com](https://www.aqdtv124.com?f=github)
+### 【地址2】：[https://www.aqdtv195.com](https://www.aqdtv195.com?f=github)
+### 【地址3】：[https://www.aqd089.com](https://www.aqd089.com?f=github)
+### 【地址4】：[https://www.aqdtv104.com](https://www.aqdtv104.com?f=github)
+### 【地址5】：[https://www.aqdtv151.com](https://www.aqdtv151.com?f=github)
+### 【地址6】：[https://www.aqd078.com](https://www.aqd078.com?f=github)
+### 【地址7】：[https://www.aqdtv196.com](https://www.aqdtv196.com?f=github)
+### 【地址8】：[https://www.aqdtv192.com](https://www.aqdtv192.com?f=github)
+### 【地址9】：[https://www.aqdtv106.com](https://www.aqdtv106.com?f=github)
+### 【地址10】：[https://www.aqdtv103.com](https://www.aqdtv103.com?f=github)
 <br>
 
 ## 爱情岛论坛永久地址客户端下载
