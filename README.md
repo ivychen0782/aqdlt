@@ -3,17 +3,17 @@
 
 ---
 
-## 爱情岛论坛最新网址 (2022.01.22 UPDATED)
-### 【地址1】：[https://vip.aqdtv579.com](https://vip.aqdtv579.com)
-### 【地址2】：[https://vip.aqdtv532.com](https://vip.aqdtv532.com)
-### 【地址3】：[https://vip.aqdmv159.com](https://vip.aqdmv159.com)
-### 【地址4】：[https://vip.aqdtv600.com](https://vip.aqdtv600.com)
-### 【地址5】：[https://vip.aqdtv574.com](https://vip.aqdtv574.com)
-### 【地址6】：[https://vip.aqdtv594.com](https://vip.aqdtv594.com)
-### 【地址7】：[https://vip.aqdtv537.com](https://vip.aqdtv537.com)
-### 【地址8】：[https://vip.aqdmv149.com](https://vip.aqdmv149.com)
-### 【地址9】：[https://vip.aqdmv138.com](https://vip.aqdmv138.com)
-### 【地址10】：[https://vip.aqdtv549.com](https://vip.aqdtv549.com)
+## 爱情岛论坛最新网址 (2022.02.01 UPDATED)
+### 【地址1】：[https://vip.aqdtv586.com](https://vip.aqdtv586.com)
+### 【地址2】：[https://vip.aqdtv523.com](https://vip.aqdtv523.com)
+### 【地址3】：[https://vip.aqdtv583.com](https://vip.aqdtv583.com)
+### 【地址4】：[https://vip.aqdmv171.com](https://vip.aqdmv171.com)
+### 【地址5】：[https://vip.aqdtv562.com](https://vip.aqdtv562.com)
+### 【地址6】：[https://vip.aqdmv179.com](https://vip.aqdmv179.com)
+### 【地址7】：[https://vip.aqdmv117.com](https://vip.aqdmv117.com)
+### 【地址8】：[https://vip.aqdtv536.com](https://vip.aqdtv536.com)
+### 【地址9】：[https://vip.aqdtv601.com](https://vip.aqdtv601.com)
+### 【地址10】：[https://vip.aqdtv563.com](https://vip.aqdtv563.com)
 <br>
 
 ## 爱情岛论坛永久地址客户端下载
