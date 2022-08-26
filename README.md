@@ -3,17 +3,17 @@
 
 ---
 
-## 爱情岛论坛最新网址 (2022.08.16 UPDATED)
-### 【地址01】：[https://vip.aqdx122.com](https://vip.aqdx122.com?f=github)
-### 【地址02】：[https://vip.aqdx70.com](https://vip.aqdx70.com?f=github)
-### 【地址03】：[https://vip.aqdx89.com](https://vip.aqdx89.com?f=github)
-### 【地址04】：[https://vip.aqdx154.com](https://vip.aqdx154.com?f=github)
-### 【地址05】：[https://vip.aqdx11.com](https://vip.aqdx11.com?f=github)
-### 【地址06】：[https://vip.aqdx3.com](https://vip.aqdx3.com?f=github)
-### 【地址07】：[https://vip.aqdx138.com](https://vip.aqdx138.com?f=github)
-### 【地址08】：[https://vip.aqdx41.com](https://vip.aqdx41.com?f=github)
-### 【地址09】：[https://vip.aqdx37.com](https://vip.aqdx37.com?f=github)
-### 【地址10】：[https://vip.aqdx174.com](https://vip.aqdx174.com?f=github)
+## 爱情岛论坛最新网址 (2022.08.27 UPDATED)
+### 【地址01】：[https://vip.aqdx193.com](https://vip.aqdx193.com?f=github)
+### 【地址02】：[https://vip.aqdx126.com](https://vip.aqdx126.com?f=github)
+### 【地址03】：[https://vip.aqdx2.com](https://vip.aqdx2.com?f=github)
+### 【地址04】：[https://vip.aqdx79.com](https://vip.aqdx79.com?f=github)
+### 【地址05】：[https://vip.aqdx64.com](https://vip.aqdx64.com?f=github)
+### 【地址06】：[https://vip.aqdx14.com](https://vip.aqdx14.com?f=github)
+### 【地址07】：[https://vip.aqdx24.com](https://vip.aqdx24.com?f=github)
+### 【地址08】：[https://vip.aqdx49.com](https://vip.aqdx49.com?f=github)
+### 【地址09】：[https://vip.aqdx185.com](https://vip.aqdx185.com?f=github)
+### 【地址10】：[https://vip.aqdx8.com](https://vip.aqdx8.com?f=github)
 <br>
 
 ## 爱情岛论坛永久地址客户端下载
